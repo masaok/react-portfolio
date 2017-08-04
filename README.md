@@ -1,1 +1,0 @@
-# masaok.github.io
